@@ -1,5 +1,5 @@
 # Nikki Kheifets
-[My -bad- portfolio](https://www.nikkikheifets.com)
+[My -bad/ in progress- portfolio](https://www.nikkikheifets.com)
 ___
 
 
